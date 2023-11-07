@@ -1,0 +1,1 @@
+Klee is coming and better get ready! She is a little mondstadt girl who like to destroy things whit her little tiny bombs. Then work a lot to buy some primogems for this little child! 
